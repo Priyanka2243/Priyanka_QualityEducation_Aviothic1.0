@@ -1,2 +1,2 @@
-# Priyanka_QualityEducation_Aviothic1.0
-ABOUT QUALITY EDUCATION
+# Priyanka_EduStreet_Aviothic1.O
+ABOUT QUALITY EDUCATIOn
